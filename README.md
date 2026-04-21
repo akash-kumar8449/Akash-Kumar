@@ -65,8 +65,8 @@ MongoDB
 
 ## 🔗 Connect with Me
 
-📩 Email: [your-email@gmail.com](akashkumar8449832367@gmail.com)
-💼 LinkedIn: [your-linkedin-link](https://www.linkedin.com/in/akash-kumar-6215a6296/)
+📩 Email: [My Email](akashkumar8449832367@gmail.com)
+💼 LinkedIn: [linkedin](https://www.linkedin.com/in/akash-kumar-6215a6296/)
 
 ---
 
